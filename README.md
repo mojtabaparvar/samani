@@ -1,3 +1,8 @@
 # samani
 samani
-samani nistam
+
+samani samani
+smani smani
+man afsoonam
+
+samani nista
